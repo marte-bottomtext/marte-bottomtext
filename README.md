@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nothing ^_^ (I don't know anything yet)
 - 📫 How to reach me: martezak321@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I am very random, quirky and weird :P
+- ⚡ Fun fact: I am infact, a person
 
 <!---
 marte-bottomtext/marte-bottomtext is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
